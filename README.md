@@ -5,7 +5,8 @@ Collaboration is pretty new to me and ngl I'm pretty scared to meet new people a
 However I am always open to criticism and help cuz im a very nice guy and nice person. Also very silly and goofy.
 
 Stuff I like include video games and movies. And cartoons and other stuff like FLCL 
-![GBj0eLeXcAAhUJG](https://github.com/Samie99/Samie99/assets/149211116/6b227db4-504b-42e2-80a1-d830fe0c0afc)
+![Screenshot (25)](https://github.com/Samie99/Samie99/assets/149211116/2f8d035e-7317-43a9-bf1a-9de40f411c4d)
+
 
 <!--
 **Samie99/Samie99** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
