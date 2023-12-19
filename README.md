@@ -1,4 +1,11 @@
 ### Hi there 👋
+I am a highschool student, currently a beginner in the world of programming.
+I'm learning how to program some pretty small projects like calculators, hang-man, and small games.
+Collaboration is pretty new to me and ngl I'm pretty scared to meet new people and talk with those who know much MUCH more about the concept than me. 
+However I am always open to criticism and help cuz im a very nice guy and nice person. Also very silly and goofy.
+
+Stuff I like include video games and movies. And cartoons and other stuff like FLCL 
+![F4IPR3yasAAGMKT](https://github.com/Samie99/Samie99/assets/149211116/6f1619c9-9ceb-49cd-bb04-cde556acfead)
 
 <!--
 **Samie99/Samie99** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
