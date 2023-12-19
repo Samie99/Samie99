@@ -4,7 +4,8 @@ I'm learning how to program some pretty small projects like calculators, hang-ma
 Collaboration is pretty new to me and ngl I'm pretty scared to meet new people and talk with those who know much MUCH more about the concept than me. 
 However I am always open to criticism and help cuz im a very nice guy and nice person. Also very silly and goofy.
 
-Stuff I like include video games and movies. And cartoons and other stuff like FLCL 
+Stuff I like include video games and movies. And cartoons and other stuff like FLCL
+
 ![Screenshot (25)](https://github.com/Samie99/Samie99/assets/149211116/2f8d035e-7317-43a9-bf1a-9de40f411c4d)
 
 
